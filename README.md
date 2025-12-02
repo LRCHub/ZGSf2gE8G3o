@@ -1,0 +1,45 @@
+# TRIPLE H <高倉陽毬(CV:荒川美穂)､伊空ヒバリ(CV:渡部優衣)､歌田光莉(CV:三宅麻理恵)> – 魂こがして
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh! Yeh!
+スポットライトは孤独を映し
+色褪せた 場面にピリオドを打つ
+片道キップを 二枚手に入れ
+喜びと 悲しみの 停車場に立つ
+家も 町も 遠く離れて
+一人道を走る
+ボクサーの様に 闇切り開け!
+魂(魂) 焦がして
+ピエロに疲れて 眠れぬ夜は
+夢の又夢見るさ あの娘の胸で
+歴史に残すさ この恋だけは
+足元にひかれてる ラインを消して
+愛も金も 今までいつも
+ひとときだけ 熱く
+花火のように 燃えちまったよ
+心(心) 焦がして
+家も 町も 遠く離れて
+一人道を走る
+ボクサーの様に 闇切り開け!
+魂(魂) 焦がして
+魂(魂) 焦がして
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh!
+Yeh! Yeh! Yeh! Yeh! Yeh! Yeh!
+```
